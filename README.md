@@ -1,1 +1,1 @@
-# newords.com
+# slovar.com
